@@ -1,1 +1,0 @@
-# bilangan-prima-andriawan13
